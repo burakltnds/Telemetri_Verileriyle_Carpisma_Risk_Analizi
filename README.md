@@ -1,0 +1,1 @@
+# Telemetri_Verileriyle_Carpisma_Risk_Analizi
